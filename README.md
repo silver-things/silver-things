@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @silver-things !!
+- 👀 I’m interested in arts and game design ˚ʚ♡ɞ˚
+- 🌱 I’m currently learning how to create games in GameMaker!
+- ⚡ Pronouns: they/them ✮⋆˙
